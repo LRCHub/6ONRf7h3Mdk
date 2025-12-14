@@ -1,0 +1,114 @@
+# Travis Scott – SICKO MODE
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:19.95] Astro, yeah
+[00:25.45] 
+[00:27.76] Sun is down, freezin' cold
+[00:30.36] That's how we already know winter's here
+[00:33.45] My dawg would prolly do it for a Louis belt
+[00:36.76] That's just all he know, he don't know nothin' else
+[00:40.33] I tried to show 'em, yeah
+[00:47.29] I tried to show 'em, yeah, yeah
+[00:53.93] Yeah, yeah, yeah
+[00:55.25] Going on you with the pick and roll
+[00:57.14] Young LaFlame, he in sicko mode
+[01:12.64] 
+[01:03.58] Woo, made this here with all the ice on in the booth
+[01:06.83] At the gate outside, when they pull up, they get me loose
+[01:09.83] Yeah, Jump Out boys, that's Nike boys, hoppin' out coupes
+[01:12.94] This shit way too big, when we pull up give me the loot
+[01:15.91] (Gimme the loot!)
+[01:17.48] Was off the Remy, had a Papoose
+[01:19.98] Had to hit my old town to duck the news
+[01:22.62] Two-four hour lockdown, we made no moves
+[01:25.53] Now it's 4AM and I'm back up poppin' with the crew
+[01:28.42] I just landed in, Chase B mixes pop like Jamba Juice
+[01:31.51] Different colored chains, think my jeweler really sellin' fruits
+[01:34.79] And they chokin', man, know the crackers wish it was a noose
+[02:04.79] 
+[01:37.71] Some-some-some, someone said
+[01:39.93] To win the retreat, we all in too deep
+[01:43.17] P-p-playin' for keeps, don't play us for weak (someone said)
+[01:46.75] To win the retreat, we all in too deep
+[01:49.22] P-p-playin' for keeps, don't play us for weak (yeah)
+[02:15.22] 
+[01:52.92] This shit way too formal, y'all know I don't follow suit
+[01:56.58] Stacey Dash, most of these girls ain't got a clue
+[01:59.59] All of these hoes I made off records I produced
+[02:02.70] I might take all my exes and put 'em all in a group
+[02:06.33] Hit my esés, I need the bootch
+[02:09.06] 'Bout to turn this function to Bonnaroo
+[02:12.86] Told her, "Hop in, you comin' too"
+[02:15.19] In the 305, bitches treat me like I'm Uncle Luke
+[02:18.23] (Don't stop, pop that pussy!)
+[02:19.68] Had to slop the top off, it's just a roof (uh)
+[02:21.78] She said, "Where we goin'?" I said, "The moon"
+[02:25.56] We ain't even make it to the room
+[02:27.83] She thought it was the ocean, it's just the pool
+[02:31.23] Now I got her open, it's just the Goose
+[02:34.45] Who put this shit together? I'm the glue (someone said)
+[02:38.17] Shorty FaceTimed me out the blue
+[02:54.17] 
+[02:40.05] Someone said (Playin' for keeps)
+[02:42.69] Someone said, motherfuck what someone said
+[02:46.38] (Don't play us for weak)
+[02:58.38] 
+[03:01.13] Yeah
+[03:02.26] Astro
+[03:04.90] Yeah, yeah
+[03:07.77] Tay Keith, fuck these niggas up (Ay, ay)
+[03:27.77] 
+[03:09.58] She's in love with who I am
+[03:11.91] Back in high school, I used to bus it to the dance (yeah)
+[03:14.87] Now I hit the FBO with duffles in my hands
+[03:17.90] I did half a Xan, thirteen hours 'til I land
+[03:20.75] Had me out like a light, ayy, yeah
+[03:23.44] Like a light, ayy, yeah
+[03:24.65] Like a light, ayy
+[03:33.15] 
+[03:26.07] Slept through the flight, ayy
+[03:27.57] Knocked for the night, ayy, 767, man
+[03:30.34] This shit got double bedroom, man
+[03:32.37] I still got scores to settle, man
+[03:33.57] I crept down the block (down the block), made a right (yeah, right)
+[03:36.68] Cut the lights (yeah, what?), paid the price (yeah)
+[03:39.63] Niggas think it's sweet (nah, nah), it's on sight (yeah, what?)
+[03:42.73] Nothin' nice (yeah), baguettes in my ice (aww, man)
+[03:45.78] Jesus Christ (yeah), checks over stripes (yeah)
+[03:48.76] That's what I like (yeah), that's what we like (yeah)
+[03:51.72] Lost my respect, you not a threat
+[03:54.97] When I shoot my shot, that shit wetty like I'm Sheck (bitch!)
+[03:58.42] See the shots that I took (ayy), wet like I'm Book (ayy)
+[04:01.66] Wet like I'm Lizzie, I be spinnin' Valley
+[04:04.70] Circle blocks 'til I'm dizzy (yeah, what?)
+[04:06.87] Like where is he? (Yeah, what?)
+[04:08.43] No one seen him (yeah, yeah)
+[04:09.96] I'm tryna clean 'em (yeah)
+[04:22.96] 
+[04:12.46] She's in love with who I am
+[04:14.21] Back in high school, I used to bus it to the dance
+[04:16.99] Now I hit the FBO with duffles in my hand (woo!)
+[04:20.24] I did half a Xan, thirteen hours 'til I land
+[04:22.93] Had me out like a light, like a light
+[04:25.17] Like a light, like a light
+[04:26.83] Like a light (yeah), like a light
+[04:28.04] Like a light
+[04:34.04] 
+[04:28.94] Yeah, passed the dawgs a celly
+[04:30.43] Sendin' texts, ain't sendin' kites, yeah
+[04:32.10] He said, "Keep that on lock"
+[04:33.79] I said, "You know this shit, it's life", yeah
+[04:35.49] It's absolute (yeah), I'm back reboot (it's lit!)
+[04:38.36] LaFerrari to Jamba Juice, yeah (skrrt, skrrt)
+[04:42.06] We back on the road, they jumpin' off, no parachute, yeah
+[04:44.33] Shawty in the back
+[04:46.04] She said she workin' on her glutes, yeah (oh my God)
+[04:48.04] Ain't by the book, yeah
+[04:49.43] This how it look, yeah
+[04:51.07] 'Bout a check, yeah
+[04:52.78] Just check the foots, yeah
+[04:54.20] Pass this to my daughter, I'ma show her what it took (yeah)
+[04:56.84] Baby mama cover Forbes, got these other bitches shook, yeah
+```
